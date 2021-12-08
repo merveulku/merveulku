@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @merveulku. I am mu phD in İstanbul.
+- 👋 Hi, I’m @merveulku. I am my phD in İstanbul.
