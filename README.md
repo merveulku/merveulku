@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @merveulku. I am my phD in İstanbul.
+- 👋 Hi, I’m @merveulku. I am phD student at KHAS-MIS. I am interest in Data Science project.
